@@ -1,0 +1,1 @@
+# Hideyoshi942.github.io
